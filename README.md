@@ -12,3 +12,4 @@ Invitame a jugar ID:AURONER23
 - 📫 Por cod mobile
 - ⚡ Juegue free fire desde la beta
 
+![image](https://user-images.githubusercontent.com/114215515/218567678-3d65bac2-053e-495c-ac05-4d565510865e.png)
