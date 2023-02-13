@@ -2,7 +2,7 @@
 
 
 
-Here are some ideas to get you started:
+Invitame a jugar ID:AURONER23
 
 - 🔭 Estudiando el la PfLC
 - 🌱 A juegar cod mobile
